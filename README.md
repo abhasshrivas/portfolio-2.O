@@ -1,1 +1,1 @@
-# My-New-Portfolio with some projects amd website.
+# My-New-Portfolio with some projects and website.
